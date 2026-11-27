@@ -1,5 +1,5 @@
 
-# Hi, I'm Suraj Jha 👋
+# Hi, I'm Suraj 👋
 
 ### Aspiring Data Analyst | BCA Student
 
